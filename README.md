@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @Jasmine2339
 - 👀 I’m interested in art and kpop
 - 🌱 I’m currently learning korean
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on blackpink fanart
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: High heels were originally worn by men. 
 
